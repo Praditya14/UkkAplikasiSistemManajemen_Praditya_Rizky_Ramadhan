@@ -1,0 +1,1 @@
+# UkkAplikasiSistemManajemen_Praditya_Rizky_Ramadhan
